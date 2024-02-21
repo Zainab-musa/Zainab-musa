@@ -1,4 +1,4 @@
- Hi there 👋 I'm ZMusaainab 
+ Hi there 👋 I'm Zainab Musa 
 - 🌱 I’m currently learning at Tunapanda Institute
 - 👯 I’m looking to collaborate on with people
 - 🤔 I’m looking for help with designing project
